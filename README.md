@@ -1,6 +1,6 @@
 
 # Komiljon Yormurodov
-**[Email](mailto:komiljonyormurodov@gmail.com)** | **[Phone](tel:998934631627)**
+**[Email](mailto:komiljonyormurodov@gmail.com)** | +998 93 463-16-27
 
 EXPERIENCE
 -
